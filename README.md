@@ -1,6 +1,6 @@
 -  Hi, I’m Jonathan Roth
 -  I’m interested in creating useful things with computer solutions
--  I’m currently learning computer science at unviersity of maryland
+-  I’m currently learning computer science at university of maryland
 -  I’m looking to collaborate on any projects really that can be of use to people
 -  How to reach me- email me at jonnyroth12@gmail.com ill get back ASAP.
 
